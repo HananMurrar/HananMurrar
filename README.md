@@ -2,4 +2,4 @@
 
 I'm Hanan 🤍
 
-I'm computer science student 💻
+I'm computer science student 
