@@ -2,4 +2,4 @@
 
 I'm Hanan 🤍
 
-I'm computer science graduate from BZU
+I'm CS graduate from BZU
