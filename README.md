@@ -2,4 +2,4 @@
 
 I'm Hanan 🤍
 
-I'm CS graduate from BZU
+Palestinian girl striving to make a positive impact in the IT field
